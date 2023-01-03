@@ -1,4 +1,4 @@
 # Neuromancers community.
 
 
-Created by Morihir
+Created by Morihir https://vk.com/morihir
